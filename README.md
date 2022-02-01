@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-🚧 Under Construction 🚧 Something Exciting Awaits 🤯
+🚧 Under Construction Fovever 🚧 Something Exciting Awaits 🤯
 
 For Now. Hi 👋 My name is Jo 🐸
 - 😄 Pronouns: She/They
